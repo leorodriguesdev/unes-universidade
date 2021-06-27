@@ -1,1 +1,0 @@
-# vacinacovid-somentehtml
